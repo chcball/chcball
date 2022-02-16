@@ -2,8 +2,8 @@
 I'm a 1st year BSCS student of WVSU-Main
 You can call me Yani 😉
 
-- 🌱 I’m currently learning how to write a program properly.
-- 🤔 I’m looking for help with my teachers and classmates.
+- 🌱 I’m still in the process of learning how to write a program properly.
+- 🤔 I’m reaching out through my classmates when I'm having a hard time doing an activity on my own.
 - 📫 How to reach me: 
 - facebook- https://www.facebook.com/Yllennor.Carbonell or in Gmail- yllennoranne.carbonell@wvsu.edu.ph or in my personal Gmail- yanigurlcarbs@gmail.com
 - 😄 Pronouns: 
