@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm a 1st year BSCS student of WVSU-Main
+I'm a 3rd year BSCS student of WVSU-Main
 You can call me Yani 😉
 
 - 🌱 I’m still in the process of learning how to write a program properly.
